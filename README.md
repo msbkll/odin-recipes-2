@@ -12,3 +12,4 @@ I will demonstrate how to put pages and images with links from the same director
 
 Self Reflection: 
 
+this task was not so hard since this was my second attempt. 
